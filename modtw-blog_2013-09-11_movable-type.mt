@@ -400,7 +400,7 @@ BODY:
 <p style="MARGIN:0cm 0cm 0pt;" class="MsoNormal">&nbsp;</p>
 <p style="MARGIN:0cm 0cm 0pt;" class="MsoNormal"><span style="COLOR:#002060;FONT-SIZE:16pt;" lang="EN-US"><font style="BACKGROUND-COLOR:#00007f;" color="#ffffff">本報訊</font>：2013/7/21 </span><span style="COLOR:#002060;FONT-SIZE:16pt;">上午<span lang="EN-US">9</span>時許，南和池畔紛紛湧入各路英雄好漢</span><span style="COLOR:#002060;FONT-SIZE:16pt;" lang="EN-US"><font face="Calibri">…<span style="COLOR:#002060;FONT-SIZE:16pt;">據聞這裡將有一場人魚親子大會師～～</span></font></span></p>
 <p style="MARGIN:0cm 0cm 0pt;" class="MsoNormal"><span style="COLOR:#002060;FONT-SIZE:16pt;" lang="EN-US"><font face="Calibri"><span style="COLOR:#002060;FONT-SIZE:16pt;"></span></font></span>&nbsp;</p>
-<p style="MARGIN:0cm 0cm 0pt;" class="MsoNormal"><span style="COLOR:#002060;FONT-SIZE:16pt;" lang="EN-US"><font face="Calibri"><span style="COLOR:#002060;FONT-SIZE:16pt;">主辦單位與場地經理，積極秘商...要如何減輕這場派對即將掀起的武林大地震.........<img src="http://l.yimg.com/f/i/tw/blog/smiley/16.gif"/><img src="http://l.yimg.com/f/i/tw/blog/smiley/16.gif"/><img src="http://l.yimg.com/f/i/tw/blog/smiley/16.gif"/></span><span style="COLOR:#002060;FONT-SIZE:16pt;"><img style="WIDTH:540px;HEIGHT:324px;" src="./images/118/.sTwPbPXMCnPt2Lm81tx0A.jpg" width="190" height="164"/></span></font> 
+<p style="MARGIN:0cm 0cm 0pt;" class="MsoNormal"><span style="COLOR:#002060;FONT-SIZE:16pt;" lang="EN-US"><font face="Calibri"><span style="COLOR:#002060;FONT-SIZE:16pt;">主辦單位與場地經理，積極秘商...要如何減輕這場派對即將掀起的武林大地震.........<img src="http://l.yimg.com/f/i/tw/blog/smiley/16.gif"/><img src="http://l.yimg.com/f/i/tw/blog/smiley/16.gif"/><img src="http://l.yimg.com/f/i/tw/blog/smiley/16.gif"/></span><span style="COLOR:#002060;FONT-SIZE:16pt;"><img style="WIDTH:540px;HEIGHT:324px;" src="../images/./images/118/a.sTwPbPXMCnPt2Lm81tx0A.jpg" width="190" height="164"/></span></font> 
 <p style="MARGIN:0cm 0cm 0pt;" class="MsoNormal"><span style="COLOR:#002060;FONT-SIZE:16pt;"></span>&nbsp;</p>
 <p style="MARGIN:0cm 0cm 0pt;" class="MsoNormal"><span style="COLOR:#002060;FONT-SIZE:16pt;"><span lang="EN-US"><font color="#7f003f"><img src="http://l.yimg.com/f/i/tw/blog/smiley/6.gif"/></font><font style="BACKGROUND-COLOR:#800000;" color="#ffffff">滾滾樂～</font></span></span></p>
 <p style="MARGIN:0cm 0cm 0pt;" class="MsoNormal"><span style="COLOR:#002060;FONT-SIZE:16pt;"><span lang="EN-US">就是在滾球中，從泳池的這頭滾到對岸再回來(全長35M)......可別以為這很簡單</span></span></p>
@@ -443,7 +443,7 @@ BODY:
 <p style="MARGIN:0cm 0cm 0pt;" class="MsoNormal"><span style="COLOR:#002060;FONT-SIZE:16pt;">小法堅信...與姨丈聯手一定可以再造佳績......</span><span style="COLOR:#002060;FONT-SIZE:16pt;" lang="EN-US"><img style="WIDTH:261px;HEIGHT:175px;" src="./images/118/scgtDUFzJYw_PrOfbi8CYQ.jpg" width="204" height="216"/><img style="WIDTH:228px;HEIGHT:182px;" src="./images/118/BE_BTVrO2yOF55BXNcyWFQ.jpg" width="201" height="168"/><br><img style="WIDTH:274px;HEIGHT:185px;" src="./images/118/YzS0CpsUOn1WGwf86XIaiQ.jpg" width="169" height="230"/>看～跟把拔還是最好吧</span></p>
 <p><span style="COLOR:#002060;FONT-SIZE:16pt;" lang="EN-US">不信？還有以下圖片為證～～</span></p>
 <span style="COLOR:#002060;FONT-SIZE:16pt;" lang="EN-US"></span>
-<p><span style="COLOR:#002060;FONT-SIZE:16pt;" lang="EN-US"><img src="./images/118/BKE97jTLaTte5_msglf7wg.jpg" width="181" height="222"/><img style="WIDTH:171px;HEIGHT:221px;" src="./images/118/iogdmYdbXnjBLNoBYQdZkA.jpg" width="168" height="177"/><img style="WIDTH:177px;HEIGHT:221px;" src="./images/118/Tl8MmQb77JWHLdfuWRgX5g.jpg" width="224" height="146"/><br><img style="WIDTH:240px;HEIGHT:172px;" src="./images/118/2tjVOMsEv8MVfgKGRrqiug.jpg" width="133" height="276"/><img style="WIDTH:236px;HEIGHT:173px;" src="./images/118/.O7RnoyoJgtaa0ywUl231A.jpg" width="144" height="245"/><br></span><span style="COLOR:#002060;FONT-SIZE:16pt;" lang="EN-US"><span style="COLOR:#002060;FONT-SIZE:16pt;" lang="EN-US"><span style="COLOR:#002060;FONT-SIZE:16pt;" lang="EN-US"><span style="COLOR:#002060;FONT-SIZE:16pt;" lang="EN-US"><img style="WIDTH:269px;HEIGHT:215px;" src="./images/118/3vBDoYg07dPP.PXkXmNtKA.jpg" width="193" height="228"/><img style="WIDTH:258px;HEIGHT:219px;" src="./images/118/q2mHhDBOjquWx0hJqX1pzg.jpg" width="289" height="89"/></span></span></span></span></p>
+<p><span style="COLOR:#002060;FONT-SIZE:16pt;" lang="EN-US"><img src="./images/118/BKE97jTLaTte5_msglf7wg.jpg" width="181" height="222"/><img style="WIDTH:171px;HEIGHT:221px;" src="./images/118/iogdmYdbXnjBLNoBYQdZkA.jpg" width="168" height="177"/><img style="WIDTH:177px;HEIGHT:221px;" src="./images/118/Tl8MmQb77JWHLdfuWRgX5g.jpg" width="224" height="146"/><br><img style="WIDTH:240px;HEIGHT:172px;" src="./images/118/2tjVOMsEv8MVfgKGRrqiug.jpg" width="133" height="276"/><img style="WIDTH:236px;HEIGHT:173px;" src="../images/./images/118/a.O7RnoyoJgtaa0ywUl231A.jpg" width="144" height="245"/><br></span><span style="COLOR:#002060;FONT-SIZE:16pt;" lang="EN-US"><span style="COLOR:#002060;FONT-SIZE:16pt;" lang="EN-US"><span style="COLOR:#002060;FONT-SIZE:16pt;" lang="EN-US"><span style="COLOR:#002060;FONT-SIZE:16pt;" lang="EN-US"><img style="WIDTH:269px;HEIGHT:215px;" src="./images/118/3vBDoYg07dPP.PXkXmNtKA.jpg" width="193" height="228"/><img style="WIDTH:258px;HEIGHT:219px;" src="./images/118/q2mHhDBOjquWx0hJqX1pzg.jpg" width="289" height="89"/></span></span></span></span></p>
 <p><span style="COLOR:#002060;FONT-SIZE:16pt;" lang="EN-US"><span style="COLOR:#002060;FONT-SIZE:16pt;" lang="EN-US"><span style="COLOR:#002060;FONT-SIZE:16pt;" lang="EN-US"><img style="WIDTH:275px;HEIGHT:209px;" src="./images/118/YNScvnqys2ztcMDSU2RO4w.jpg" width="192" height="166"/></span><img style="WIDTH:257px;HEIGHT:208px;" src="./images/118/j2cKRJ5Exj7AzZPe9_N_sQ.jpg" width="237" height="183"/></span><br><img style="WIDTH:312px;HEIGHT:241px;" src="./images/118/VOcE0MZzT1lMj2yiEs_OSA.jpg" width="163" height="220"/>真的是把拔、馬迷最棒了<br></span></p>
 <span style="COLOR:#002060;FONT-SIZE:16pt;" lang="EN-US"></span></span>
 <p><span style="COLOR:#002060;FONT-SIZE:16pt;" lang="EN-US">其實......<br>最精彩的是這一組。<br>出發不久，彤彤一直喊：停一下...停一下</span></p>
@@ -840,7 +840,7 @@ BODY:
 <p class="MsoNormal" style="margin:0cm 0cm 0pt;"><span style="background:rgb(250, 251, 251);color:rgb(78, 86, 101);font-family:標楷體;font-size:14pt;"><font color="#000000">以及鳳山宿舍代表「辣媽」，妳們的熱情支持，<span lang="EN-US"></span></font></span></p>
 <p class="MsoNormal" style="margin:0cm 0cm 0pt;"><span style="background:rgb(250, 251, 251);color:rgb(78, 86, 101);font-family:標楷體;font-size:14pt;"><font color="#000000">更激勵我們選手的鬥志，<span lang="EN-US"></span></font></span></p>
 <p class="MsoNormal" style="margin:0cm 0cm 0pt;"><font color="#441415"><span style="background:rgb(250, 251, 251);color:rgb(78, 86, 101);font-family:標楷體;font-size:14pt;">河東人魚隊愛妳喔！（阿祥）<img src="http://l.yimg.com/f/i/tw/blog/smiley/9.gif"/></span><span lang="EN-US" style="font-family:標楷體;font-size:14pt;"></span></font></p>
-<p><img width="284" height="184" style="width:309px;height:220px;" src="./images/43/.LA1AOF_ayDVAxpzrU8Ixg.jpg"/><img width="222" height="331" style="width:200px;height:286px;" src="./images/43/w7SD.vSYfPFT9B.ELlvyIg.jpg"/><br></p>
+<p><img width="284" height="184" style="width:309px;height:220px;" src="../images/./images/43/a.LA1AOF_ayDVAxpzrU8Ixg.jpg"/><img width="222" height="331" style="width:200px;height:286px;" src="./images/43/w7SD.vSYfPFT9B.ELlvyIg.jpg"/><br></p>
 <p>&nbsp;</p>
 -----
 COMMENT: 
@@ -1039,7 +1039,7 @@ BODY:
 <p style="LINE-HEIGHT:22pt;MARGIN:0cm 0cm 0pt;" class="MsoNormal">&nbsp;</p>
 <p style="LINE-HEIGHT:22pt;MARGIN:0cm 0cm 0pt;" class="MsoNormal"><img src="./images/114/nknOjIDDj7dYqulfQjTQjA.jpg"/></p>
 <p style="LINE-HEIGHT:22pt;MARGIN:0cm 0cm 0pt;" class="MsoNormal">&nbsp;</p>
-<p style="LINE-HEIGHT:22pt;MARGIN:0cm 0cm 0pt;" class="MsoNormal"><img src="./images/114/.kSXnBObkaAR.jso7QCHhg.jpg"/></p>
+<p style="LINE-HEIGHT:22pt;MARGIN:0cm 0cm 0pt;" class="MsoNormal"><img src="../images/./images/114/a.kSXnBObkaAR.jso7QCHhg.jpg"/></p>
 <p style="LINE-HEIGHT:22pt;MARGIN:0cm 0cm 0pt;" class="MsoNormal">&nbsp;</p>
 <p style="LINE-HEIGHT:22pt;MARGIN:0cm 0cm 0pt;" class="MsoNormal"><img src="./images/114/6kwQww4QQVmOg0IYMc0BJg.jpg"/></p>
 <p style="LINE-HEIGHT:22pt;MARGIN:0cm 0cm 0pt;" class="MsoNormal">&nbsp;</p>
@@ -1180,7 +1180,7 @@ ALLOW COMMENTS: 1
 PRIMARY CATEGORY: 戶外趴趴騎
 -----
 BODY: 
-中寮山鐵馬朝聖行<br>【「河東獅」社訊/宗興報導】<br>在河東獅的精心安排策畫之下，「中寮山」鐵馬朝聖行（高縣道<br>41號）終於在民國101 年3 月2 日星期六清晨由高金枝院長伉儷<br>的帶領下，揭開序幕，此次陣容之堅強，集聚高雄地院、少家法<br>院、高雄高分院、高雄地檢、高雄高分檢、台南地院等院、檢單<br>位，並有多位勇腳貴賓蒞臨指導「河東獅」，包含遠道而來的中<br>院珮瑛學姐、南院貞秀學姐（真是人在曹營，心在漢呀），其中<br>高分檢主任江惠民更是從美術館宅邸一路鐵馬奔馳到金山道院，<br>與「河東獅」會合，軟Q 的鐵腳精神更是令人佩服。也感謝「河<br>東獅」最堅實的後勤雲龍大哥，沿路拍照、加油、指示騎乘路線<br>、泡茶、載送鐵馬、物資…等，讓「河東獅」可以無後顧之憂地<br>盡享沿途風光。<br><br><br>編按：「中寮山」，一座最高不到500 公尺的小山脈，中寮山它<br>以山上的電視台或電台的轉播站而聞名，整個大高雄地區和高屏<br>平原，以及嘉南平原南部都是他的涵蓋範圍，尤其三家無線電視<br>台，在山上都有轉播站，中寮山雖然不算高（但足以讓小編的勇<br>腳鐵腿二天），但它的地理位置卻非常優越，因為它是玉山山脈<br>深入高屏平原的餘脈，四周除了東北角和東部中央山脈外，再也<br>沒有其他阻礙，希望大崗山，南接佛光山、觀音山，漸次降為平<br>原。<br><br><br>一大早相約在岡山交流道會合，集結車輛十數台後，即前往中寮<br>山腳下的「金山道院」整備、卸車，路過的民眾見「河東獅」車<br>隊的陣容浩大，莫不肅然起敬。<br><br><img src="./images/112/ooOMVclqQ4z6D9SeCbC4Jg.jpg"/><br><br>整裝完畢後，眾人按照慣例與「河東獅」會旗、眾鐵馬大合照留<br>念。<br><img src="./images/112/OfS04YvjREsmbWn7l67uWg.jpg"/><br><br><br>宗揚學長帶領大家暖身後，雄檢鐵人顏郁山學長為我們作一<br>下行前叮嚀：中寮山是鐵馬聖山，行程一路上坡，小心慢騎，另<br>外注意的是，雖然是騎鐵馬，但是下馬用牽的不可恥，可恥的是<br>硬騎騎不上去還倒退嚕，擋到後面的車友才可恥等語。<br>院長伉儷及江主任即率領「河東獅」眾鐵騎們準備征服這座勇腳<br>聖山，發下豪語「不破中寮誓不還」…結果如何，話不多說，有<br>圖有真相。<br><br><br>江主任與鐵人顏檢<br><img src="./images/112/.nYW.bEkFc7xTCtZ8IoMGw.jpg"/><br><br>上坡囉，爬吧～<br><br><img src="./images/112/ddk7V646_SVdTF.JnXt5oQ.jpg"/><br><br>途經雞冠山<br><br><img src="./images/2/zKaA7FR2FZnApGbipQUFnQ.jpg"/><br><br>偶爾會看到裸露的泥岩惡地地形～<br><img src="./images/112/xFwaGiwJ1NOGn83QpNdiSg.jpg"/><br><br><br><br><br>中寮山是阿里山山脈的尾端延伸，是高屏地區的一等三角點，故<br>有多處電視、電台的發射站設於此處。<br><br><img src="./images/2/kbHDg.72xFQwo5nYWeajMg.jpg"/><br><br><br>大家奮力爬坡～<br><br>拼了數個三十度以上坡彎，汗珠已大珠小珠落玉盤<br><br>上坡遙遙無止期<br><br><img src="./images/112/OYKtRqnOcK2nyvnzKcgNAw.jpg"/><br><br><img src="./images/112/mvMQ7L2Gi0ywW7l3HIp71w.jpg"/><br><br><br><br>鐵人顏檢：我先玩一下小螃蟹，等後面的河東獅吧。<br>（據說顏檢當天來回上下了好幾次-妖怪級勇腳）<br><img src="./images/112/.j7M4XBiQzJE9GbVNNWiCQ.jpg"/><br><br><img src="./images/112/B0eMtS2xRgmMBVn.dKbnDw.jpg"/><br><img src="./images/112/X..PHgYkx4w9_qW6HKEL5w.jpg"/><br><br><img src="./images/112/77iit4JT3dlX2fF3Zcl5rw.jpg"/><br><img src="./images/112/nmtcc.jXFJe_HeTWQK_mew.jpg"/><br><br><img src="./images/112/rch3VSHt0eg1_yWHo1uzyw.jpg"/><br><br><img src="./images/112/tHsW9hOyycQTk0uwA.La9w.jpg"/><br><img src="./images/112/N0KQPjftJ2dLvuOSGdROaA.jpg"/><br><img src="./images/112/EAmoylFj6ZR0O8fmDdL_jg.jpg"/><br><br><img src="./images/112/7BlcLgMP1OXFqhmBp.UqdQ.jpg"/><br><img src="./images/112/hVCQ0rp9dV2_7owATyCgZg.jpg"/><br><br><br>蓮花亭附近遠眺下方南二高中寮隧道及大台南地區～<br><img src="./images/2/N0sX8CGR.VywjKFpFSH95w.jpg"/><br><br><img src="./images/112/EH9M5XVm0JypxzW5x2PGrQ.jpg"/><br><br><br>補二張近照<br><br><img src="./images/2/MYgUOiq63.nLKhLWqh3JmQ.jpg"/><br><br><img src="./images/2/0ZB3eoCf3MwgMXUOZ4JuXg.jpg"/><br><br><br>本條路線也曾是高雄超馬的比賽路線<br>此次河東獅宗揚學長中途破輪，馬失前蹄，祇好捨卡澎駿馬改行步輪，完成到達昊天宮壯舉。<br>宗揚學長：這只是我的一塊小蛋糕兒而已。（編按：a piece of cake ）<br><img src="./images/2/H4ufElgx9cq_ye7Nwd.xFg.jpg"/><br>昊天宮到了<br><br><img src="./images/112/S0X_12yfFRUc6GCoh2iBiQ.jpg"/><br><br><br><img src="./images/112/0Dj49fRx.kweMTo.oqycbA.jpg"/><br>工商服務時間：特地由嬌豔的珮瑛學姐為我們展示今年新款上市<br>的菊色「河東獅」頭巾，送禮自用兩相宜。<br><img src="./images/112/JFKA.3qwy2MnBmKcruqTZw.jpg"/><br><br><br><br><img src="./images/112/91bGJACj0LhO1jLgoKDPaA.jpg" height="376" width="501"/><br><br><br><br>回程時一路險降坡，眾鐵馬風馳電掣，迎風呼嘯，臉都被風吹到變型，不到十分鐘即<br>將先前耗費一、二小時的千斤踩踏還了回去<br>萬里乘雲千騎歸<br><br><img src="./images/2/43YjNalr2_BDnRbAdRI_FA.jpg"/><br><br>稍事休息後，少家的宗霖學長、嘉益學長即非常熱情地招待「河<br>東獅」轉往觀音山「翠湖餐廳」大啖土雞料理大餐，席間更有雲<br>龍大哥不辭辛勞地前往旗山購買毛豆，作為零食、前菜，柏宏學<br>長也歷經萬難地（聽說排很久）招待觀音山當地著名的烤蕃薯充<br>當飯後點心，實在系揪感心也（「河東獅」都可以拍全國電子的<br>廣告了）…再次感謝眾前輩們對「河東獅」暖暖的關愛。<br><img src="./images/112/l.Uwyxo36DYcxdeeAe35XA.jpg"/><br><br>烤蕃薯排隊盛況<br><br><img src="./images/112/_rNI4iobQGqbq0HWZNZ0rA.jpg"/><br><br><br>四大美人-左起貂嬋、西施、小喬、昭君，哦原來是貞秀學姐、鄭瑋學姐、珮瑛學姐與琇琇<br><img src="./images/112/d6qYbbCEQFpTk.UKpflOtQ.jpg"/><br><br><br><img src="./images/112/oKiWmJZPO7awbx8a1T6tkA.jpg"/><br><img src="./images/112/xBN8AGftZmdrfM17E6zYrg.jpg"/><br><img src="./images/112/h5p.HaC5D2TqdxKmyvvNhQ.jpg"/><br><img src="./images/112/JbufRij8VNRqky2FJzEJNA.jpg"/><br><br>隨後用餐完畢，大家還是不忍就此離別，遂由少家的宗霖學長、<br>嘉益學長帶領「河東獅」前往少家法院參觀、泡茶、話家常，讓<br>有志於少年、家事的學長姐們對少年家事有更深一層的認識，下<br>午時分「河東獅」才依依不捨地話別，期待下一次的「河東獅」<br>鐵馬行活動。<br><br><br>最後，茲以亂創一詩自娛：<br><br>青山隱隱水迢迢<br>春近河東草正茂<br>鐵馬奔馳中寮坡<br>獅吼已度昊天道<br><br>
+中寮山鐵馬朝聖行<br>【「河東獅」社訊/宗興報導】<br>在河東獅的精心安排策畫之下，「中寮山」鐵馬朝聖行（高縣道<br>41號）終於在民國101 年3 月2 日星期六清晨由高金枝院長伉儷<br>的帶領下，揭開序幕，此次陣容之堅強，集聚高雄地院、少家法<br>院、高雄高分院、高雄地檢、高雄高分檢、台南地院等院、檢單<br>位，並有多位勇腳貴賓蒞臨指導「河東獅」，包含遠道而來的中<br>院珮瑛學姐、南院貞秀學姐（真是人在曹營，心在漢呀），其中<br>高分檢主任江惠民更是從美術館宅邸一路鐵馬奔馳到金山道院，<br>與「河東獅」會合，軟Q 的鐵腳精神更是令人佩服。也感謝「河<br>東獅」最堅實的後勤雲龍大哥，沿路拍照、加油、指示騎乘路線<br>、泡茶、載送鐵馬、物資…等，讓「河東獅」可以無後顧之憂地<br>盡享沿途風光。<br><br><br>編按：「中寮山」，一座最高不到500 公尺的小山脈，中寮山它<br>以山上的電視台或電台的轉播站而聞名，整個大高雄地區和高屏<br>平原，以及嘉南平原南部都是他的涵蓋範圍，尤其三家無線電視<br>台，在山上都有轉播站，中寮山雖然不算高（但足以讓小編的勇<br>腳鐵腿二天），但它的地理位置卻非常優越，因為它是玉山山脈<br>深入高屏平原的餘脈，四周除了東北角和東部中央山脈外，再也<br>沒有其他阻礙，希望大崗山，南接佛光山、觀音山，漸次降為平<br>原。<br><br><br>一大早相約在岡山交流道會合，集結車輛十數台後，即前往中寮<br>山腳下的「金山道院」整備、卸車，路過的民眾見「河東獅」車<br>隊的陣容浩大，莫不肅然起敬。<br><br><img src="./images/112/ooOMVclqQ4z6D9SeCbC4Jg.jpg"/><br><br>整裝完畢後，眾人按照慣例與「河東獅」會旗、眾鐵馬大合照留<br>念。<br><img src="./images/112/OfS04YvjREsmbWn7l67uWg.jpg"/><br><br><br>宗揚學長帶領大家暖身後，雄檢鐵人顏郁山學長為我們作一<br>下行前叮嚀：中寮山是鐵馬聖山，行程一路上坡，小心慢騎，另<br>外注意的是，雖然是騎鐵馬，但是下馬用牽的不可恥，可恥的是<br>硬騎騎不上去還倒退嚕，擋到後面的車友才可恥等語。<br>院長伉儷及江主任即率領「河東獅」眾鐵騎們準備征服這座勇腳<br>聖山，發下豪語「不破中寮誓不還」…結果如何，話不多說，有<br>圖有真相。<br><br><br>江主任與鐵人顏檢<br><img src="../images/./images/112/a.nYW.bEkFc7xTCtZ8IoMGw.jpg"/><br><br>上坡囉，爬吧～<br><br><img src="./images/112/ddk7V646_SVdTF.JnXt5oQ.jpg"/><br><br>途經雞冠山<br><br><img src="./images/2/zKaA7FR2FZnApGbipQUFnQ.jpg"/><br><br>偶爾會看到裸露的泥岩惡地地形～<br><img src="./images/112/xFwaGiwJ1NOGn83QpNdiSg.jpg"/><br><br><br><br><br>中寮山是阿里山山脈的尾端延伸，是高屏地區的一等三角點，故<br>有多處電視、電台的發射站設於此處。<br><br><img src="./images/2/kbHDg.72xFQwo5nYWeajMg.jpg"/><br><br><br>大家奮力爬坡～<br><br>拼了數個三十度以上坡彎，汗珠已大珠小珠落玉盤<br><br>上坡遙遙無止期<br><br><img src="./images/112/OYKtRqnOcK2nyvnzKcgNAw.jpg"/><br><br><img src="./images/112/mvMQ7L2Gi0ywW7l3HIp71w.jpg"/><br><br><br><br>鐵人顏檢：我先玩一下小螃蟹，等後面的河東獅吧。<br>（據說顏檢當天來回上下了好幾次-妖怪級勇腳）<br><img src="../images/./images/112/a.j7M4XBiQzJE9GbVNNWiCQ.jpg"/><br><br><img src="./images/112/B0eMtS2xRgmMBVn.dKbnDw.jpg"/><br><img src="./images/112/X..PHgYkx4w9_qW6HKEL5w.jpg"/><br><br><img src="./images/112/77iit4JT3dlX2fF3Zcl5rw.jpg"/><br><img src="./images/112/nmtcc.jXFJe_HeTWQK_mew.jpg"/><br><br><img src="./images/112/rch3VSHt0eg1_yWHo1uzyw.jpg"/><br><br><img src="./images/112/tHsW9hOyycQTk0uwA.La9w.jpg"/><br><img src="./images/112/N0KQPjftJ2dLvuOSGdROaA.jpg"/><br><img src="./images/112/EAmoylFj6ZR0O8fmDdL_jg.jpg"/><br><br><img src="./images/112/7BlcLgMP1OXFqhmBp.UqdQ.jpg"/><br><img src="./images/112/hVCQ0rp9dV2_7owATyCgZg.jpg"/><br><br><br>蓮花亭附近遠眺下方南二高中寮隧道及大台南地區～<br><img src="./images/2/N0sX8CGR.VywjKFpFSH95w.jpg"/><br><br><img src="./images/112/EH9M5XVm0JypxzW5x2PGrQ.jpg"/><br><br><br>補二張近照<br><br><img src="./images/2/MYgUOiq63.nLKhLWqh3JmQ.jpg"/><br><br><img src="./images/2/0ZB3eoCf3MwgMXUOZ4JuXg.jpg"/><br><br><br>本條路線也曾是高雄超馬的比賽路線<br>此次河東獅宗揚學長中途破輪，馬失前蹄，祇好捨卡澎駿馬改行步輪，完成到達昊天宮壯舉。<br>宗揚學長：這只是我的一塊小蛋糕兒而已。（編按：a piece of cake ）<br><img src="./images/2/H4ufElgx9cq_ye7Nwd.xFg.jpg"/><br>昊天宮到了<br><br><img src="./images/112/S0X_12yfFRUc6GCoh2iBiQ.jpg"/><br><br><br><img src="./images/112/0Dj49fRx.kweMTo.oqycbA.jpg"/><br>工商服務時間：特地由嬌豔的珮瑛學姐為我們展示今年新款上市<br>的菊色「河東獅」頭巾，送禮自用兩相宜。<br><img src="./images/112/JFKA.3qwy2MnBmKcruqTZw.jpg"/><br><br><br><br><img src="./images/112/91bGJACj0LhO1jLgoKDPaA.jpg" height="376" width="501"/><br><br><br><br>回程時一路險降坡，眾鐵馬風馳電掣，迎風呼嘯，臉都被風吹到變型，不到十分鐘即<br>將先前耗費一、二小時的千斤踩踏還了回去<br>萬里乘雲千騎歸<br><br><img src="./images/2/43YjNalr2_BDnRbAdRI_FA.jpg"/><br><br>稍事休息後，少家的宗霖學長、嘉益學長即非常熱情地招待「河<br>東獅」轉往觀音山「翠湖餐廳」大啖土雞料理大餐，席間更有雲<br>龍大哥不辭辛勞地前往旗山購買毛豆，作為零食、前菜，柏宏學<br>長也歷經萬難地（聽說排很久）招待觀音山當地著名的烤蕃薯充<br>當飯後點心，實在系揪感心也（「河東獅」都可以拍全國電子的<br>廣告了）…再次感謝眾前輩們對「河東獅」暖暖的關愛。<br><img src="./images/112/l.Uwyxo36DYcxdeeAe35XA.jpg"/><br><br>烤蕃薯排隊盛況<br><br><img src="./images/112/_rNI4iobQGqbq0HWZNZ0rA.jpg"/><br><br><br>四大美人-左起貂嬋、西施、小喬、昭君，哦原來是貞秀學姐、鄭瑋學姐、珮瑛學姐與琇琇<br><img src="./images/112/d6qYbbCEQFpTk.UKpflOtQ.jpg"/><br><br><br><img src="./images/112/oKiWmJZPO7awbx8a1T6tkA.jpg"/><br><img src="./images/112/xBN8AGftZmdrfM17E6zYrg.jpg"/><br><img src="./images/112/h5p.HaC5D2TqdxKmyvvNhQ.jpg"/><br><img src="./images/112/JbufRij8VNRqky2FJzEJNA.jpg"/><br><br>隨後用餐完畢，大家還是不忍就此離別，遂由少家的宗霖學長、<br>嘉益學長帶領「河東獅」前往少家法院參觀、泡茶、話家常，讓<br>有志於少年、家事的學長姐們對少年家事有更深一層的認識，下<br>午時分「河東獅」才依依不捨地話別，期待下一次的「河東獅」<br>鐵馬行活動。<br><br><br>最後，茲以亂創一詩自娛：<br><br>青山隱隱水迢迢<br>春近河東草正茂<br>鐵馬奔馳中寮坡<br>獅吼已度昊天道<br><br>
 -----
 COMMENT: 
 AUTHOR: Adam
@@ -1356,7 +1356,7 @@ BODY:
 <p><span style="font-family:標楷體;"><span lang="EN-US"><img src="./images/111/tAka8elfEwXJ5hGMzRaIOw.jpg"/></span></span></p>
 <p>
 
-<img src="./images/111/.54MHRuoqJBxXJt6Kqkgdg.jpg"/></p>
+<img src="../images/./images/111/a.54MHRuoqJBxXJt6Kqkgdg.jpg"/></p>
 <p><font size="3" face="&#x0065b0;&#x007d30;&#x00660e;&#x009ad4;">
 
 </font><span style="font-family:標楷體;font-size:14pt;">終於到達「一線天」，眾人歡呼稱道「漂亮，漂亮」，兩側高聳連天的山壁，溫暖的陽光從間隙潑灑而下，讓人有脫離俗世的感覺，快門取景變成唯一能為此美景永留記憶的方法<span lang="EN-US">(</span>若非<span style="color:red;">「洪山坡」</span>學長的帶領，可能無法一窺此一漂亮的景點，為<span style="color:red;">「洪山坡」</span>學長按一萬個「讚、讚、讚‥‥」<span lang="EN-US">)</span>。<span lang="EN-US"></span></span></p>
@@ -1470,7 +1470,7 @@ BODY:
 <p style="margin:0cm 0cm 0pt;" class="MsoNormal"><strong><span class="apple-style-span"><span style="color:rgb(51, 51, 51);font-family:標楷體;font-size:14pt;"><img style="width:500px;height:350px;" src="./images/2/Na3NH.t8OOusy5U7c_LFew.jpg" width="500" height="333"/></span></span></strong></p>
 <p style="margin:0cm 0cm 0pt;" class="MsoNormal"><strong><span class="apple-style-span"><span style="color:rgb(51, 51, 51);font-family:標楷體;font-size:14pt;"><img src="./images/109/gxyxQ2gdCjwGPEKbbY3a3g.jpg"/></span></span></strong></p>
 <p style="margin:0cm 0cm 0pt;" class="MsoNormal"><strong><span class="apple-style-span"><span style="color:rgb(51, 51, 51);font-family:標楷體;font-size:14pt;"><img style="width:500px;height:300px;" src="./images/110/F7HhJubfRfzKx06mhH1t7A.jpg" width="500" height="285"/></span></span></strong></p>
-<p style="margin:0cm 0cm 0pt;" class="MsoNormal"><strong><span class="apple-style-span"><span style="color:rgb(51, 51, 51);font-family:標楷體;font-size:14pt;"><img src="./images/109/.Qjnd0MMZZjYgbMgGzz.lA.jpg"/></span></span></strong></p>
+<p style="margin:0cm 0cm 0pt;" class="MsoNormal"><strong><span class="apple-style-span"><span style="color:rgb(51, 51, 51);font-family:標楷體;font-size:14pt;"><img src="../images/./images/109/a.Qjnd0MMZZjYgbMgGzz.lA.jpg"/></span></span></strong></p>
 <p style="margin:0cm 0cm 0pt;" class="MsoNormal"><strong><span class="apple-style-span"><span style="color:rgb(51, 51, 51);font-family:標楷體;font-size:14pt;"><img style="width:158px;height:281px;" src="./images/2/sDhSjCx5owb5wwjWiXGduA.jpg" width="219" height="500"/><img style="width:186px;height:281px;" src="./images/109/4_jA_S2X3WVBA1sPMoTAAA.jpg" width="226" height="375"/><img style="width:155px;height:281px;" src="./images/110/I55UiLenVBjQHt8At.WlyQ.jpg" width="238" height="375"/></span></span></strong></p>
 <p style="margin:0cm 0cm 0pt;" class="MsoNormal"><span class="apple-style-span"><span style="color:rgb(51, 51, 51);font-family:標楷體;font-size:14pt;"></span></span>&nbsp;</p>
 <p style="margin:0cm 0cm 0pt;" class="MsoNormal"><span class="apple-style-span"><span style="color:rgb(51, 51, 51);font-family:標楷體;font-size:14pt;"><span><strong><font color="#000000">欣賞完黑面琵鷺後，前往家偉車友所開之東香台菜海鮮餐廳品嚐美食，美味的鮮蚵麵線、特殊風味之招牌草</font><span style="font-family:標楷體;font-size:14pt;"><font color="#000000">蝦捲、紅蝦、魚肉瓜棉湯、香芹蘭花蚌、絲瓜、宮保雞丁等美食令人垂</font><span style="color:rgb(34, 34, 34);">涎</span><font color="#000000">三尺，令人欽佩的是總舖師不只善於廚藝，愛心公益更不落人後，曾以單騎公益環島擁抱台灣，牆上掛著滿滿的愛心公益活動報導及合影，因宗揚要趕回去寫判決，所以先行離開，因此在品嚐雲龍所泡的回甘好茶及老闆提供「<span lang="EN-US">COOKIE BAKETY</span>」之手工餅乾之人間享受後，就目送宗揚、M</font></span>ARTIN、雲龍離開嚕。</strong></span></span></span></p>
@@ -1506,7 +1506,7 @@ BODY:
 <font color="#000000"><strong><p style="margin:0cm 0cm 0pt;" class="MsoNormal"><strong><span style="font-family:標楷體;font-size:14pt;"><img src="./images/2/4arNG0rMqBkK8sXO1VlR1w.jpg" width="518" height="500"/></span></strong></p>
 <p style="margin:0cm 0cm 0pt;" class="MsoNormal"><strong><span style="font-family:標楷體;font-size:14pt;"><span lang="EN-US"><img src="./images/2/d2iLik9FePBs0W.RZU_kRA.jpg"/></span></span></strong></p>
 <p style="margin:0cm 0cm 0pt;" class="MsoNormal"><strong><span style="font-family:標楷體;font-size:14pt;"><span lang="EN-US"><img src="./images/2/4vjFWuSbL3_YeXoTnuukpg.jpg"/></span></span></strong></p>
-<p style="margin:0cm 0cm 0pt;" class="MsoNormal"><strong><span style="font-family:標楷體;font-size:14pt;"><span lang="EN-US"><img style="width:499px;height:284px;" src="./images/110/.BltFRxwfwk0HuKiO6OAtQ.jpg" width="499" height="272"/></span></span></strong></p>
+<p style="margin:0cm 0cm 0pt;" class="MsoNormal"><strong><span style="font-family:標楷體;font-size:14pt;"><span lang="EN-US"><img style="width:499px;height:284px;" src="../images/./images/110/a.BltFRxwfwk0HuKiO6OAtQ.jpg" width="499" height="272"/></span></span></strong></p>
 <p style="margin:0cm 0cm 0pt;" class="MsoNormal"><strong><span style="font-family:標楷體;font-size:14pt;"><span lang="EN-US"></span></span></strong>&nbsp;</p>
 <p style="margin:0cm 0cm 0pt;" class="MsoNormal"></p>
 </strong></font></span></span></span></span><span class="apple-style-span"><span style="color:black;font-family:標楷體;font-size:14pt;" lang="EN-US"><strong><span style="font-family:標楷體;font-size:14pt;">最後來到老字號的傳統冰店「江水號」品嚐</span></strong><strong><span style="color:rgb(51, 51, 51);font-family:標楷體;font-size:14pt;">貞秀請客之</span></strong><strong><span style="font-family:標楷體;font-size:14pt;">道地的八寶湯（冰），碗內滿滿的食材，湯圓很<span lang="EN-US">Q</span>、芋頭超綿密。加上糖水甜度不高，簡直一大滿足，還有冬季限定的米糕粥，濃濃的米香及龍眼香氣，每一口滿滿的密甜香，加上還有</span></strong><span class="apple-style-span"><strong><span style="font-family:標楷體;font-size:14pt;">充滿芋頭的香氣撲鼻、料好實在的台南傳統小吃「芋粿」，簡直令人芋罷不能</span></strong></span><span class="apple-style-span"><span style="font-family:標楷體;font-size:14pt;">。</span></span></span></span> 
@@ -1911,7 +1911,7 @@ BODY:
 <p>河堤公園常見兒童遊樂場<img src="http://l.yimg.com/f/i/tw/blog/smiley/18.gif"/><img src="http://l.yimg.com/f/i/tw/blog/smiley/21.gif"/></p>
 <p><img src="./images/104/16A9QBjFZmS1VBxUgEcR6Q.jpg"/></p>
 <p>新莊仔天后宮<img src="http://l.yimg.com/f/i/tw/blog/smiley/36.gif"/>便是此段〔河堤公園〕終點〔自由路口 〕</p>
-<p><img src="./images/104/.SG1KjclVqP7ZFX5jxanZA.jpg"/></p>
+<p><img src="../images/./images/104/a.SG1KjclVqP7ZFX5jxanZA.jpg"/></p>
 <p>過自由路是微笑公園<img src="http://l.yimg.com/f/i/tw/blog/smiley/1.gif"/></p>
 <p><img src="./images/104/Gc1JmaW7tDMqeD2_WBSEYw.jpg"/><img src="./images/104/xeaIISBjibjU5DYYG7UMLA.jpg"/><img src="./images/104/hpq_DwHuPZBHw6bywBUDvA.jpg"/><img src="./images/104/IMCoscPHRb3DU94tTGuHcw.jpg"/></p>
 <p>公園裡也有廟<img src="http://l.yimg.com/f/i/tw/blog/smiley/36.gif"/>，這附近的廟香火很旺。</p>
@@ -1943,7 +1943,7 @@ ALLOW COMMENTS: 1
 PRIMARY CATEGORY: 戶外趴趴騎
 -----
 BODY: 
-<p><img src="./images/103/.UEKGo6Y4JLJKqw3FOcuHg.jpg"/></p>
+<p><img src="../images/./images/103/a.UEKGo6Y4JLJKqw3FOcuHg.jpg"/></p>
 <p style="LINE-HEIGHT:20pt;MARGIN:0cm 0cm 0pt;" class="MsoNormal"><span style="FONT-FAMILY:標楷體;FONT-SIZE:14pt;" lang="EN-US">4</span><span style="FONT-FAMILY:標楷體;FONT-SIZE:14pt;">月中一個晴朗的早上，我們在鳳山集合，前往傳說中北大武單車聖堂，小獅隊長以<span lang="EN-US">GPS</span>前導，往屏東潮州方向前進。</span></p>
 <p style="LINE-HEIGHT:20pt;MARGIN:0cm 0cm 0pt;" class="MsoNormal"><span style="FONT-FAMILY:標楷體;FONT-SIZE:14pt;">在武潭國小歇一會兒，卡打車下車架，開始今天的重頭戲。YA!<img src="http://l.yimg.com/f/i/tw/blog/smiley/4.gif"/></span></p>
 <p style="LINE-HEIGHT:20pt;MARGIN:0cm 0cm 0pt;" class="MsoNormal"><span style="FONT-FAMILY:標楷體;FONT-SIZE:14pt;">學校門口牆上大大的「感恩」，在閃亮的陽光中輝映！照亮門前每一個人！<img src="http://l.yimg.com/f/i/tw/blog/smiley/36.gif"/><span lang="EN-US"></span></span></p>
@@ -2636,7 +2636,7 @@ BODY:
 <p><font size="3"><font color="#00007f"><font face="&#x0065b0;&#x007d30;&#x00660e;&#x009ad4;">去了就知道院長為何會淪陷</font><span lang="EN-US"><font face="Times New Roman">…</font></span><span style="FONT-FAMILY:新細明體;">哈哈</span></font></font><span lang="EN-US"><font face="Times New Roman"><font color="#00007f" size="3">^^</font><img src="http://l.yimg.com/f/i/tw/blog/smiley/1.gif"/></font></span></p>
 <p><span lang="EN-US"><font face="Times New Roman"><font color="#00007f" size="3" face="&#x0065b0;&#x007d30;&#x00660e;&#x009ad4;">11：30</font></font></span></p>
 <p><img style="WIDTH:254px;HEIGHT:178px;" src="./images/87/qXHrqbPfHClCcJaWZEFWfQ.jpg" width="236" height="178"/><img style="WIDTH:249px;HEIGHT:178px;" src="./images/87/8Rqa9sfqY97u153VnAYPQA.jpg" width="249" height="150"/></p>
-<p><img style="WIDTH:253px;HEIGHT:171px;" src="./images/87/.ihg.bSshUFr38QWKv78Dw.jpg" width="253" height="145"/><img style="WIDTH:252px;HEIGHT:169px;" src="./images/87/f5BJBsstLmf701gUHOTEuA.jpg" width="252" height="152"/></p>
+<p><img style="WIDTH:253px;HEIGHT:171px;" src="../images/./images/87/a.ihg.bSshUFr38QWKv78Dw.jpg" width="253" height="145"/><img style="WIDTH:252px;HEIGHT:169px;" src="./images/87/f5BJBsstLmf701gUHOTEuA.jpg" width="252" height="152"/></p>
 <p><img src="./images/87/jeIZmx_ZsX_4.KTpwUjsUw.jpg"/></p>
 <p><span style="FONT-FAMILY:華康流隸體W5;FONT-SIZE:16pt;">園區內充滿歐式香草味....</span><br><img src="./images/87/3zpDTPBzSHOsh8QAQtmmGw.jpg"/><br>&nbsp;</p>
 <p>&nbsp;</p>
@@ -3004,7 +3004,7 @@ BODY:
 <p class="MsoNormal" style="MARGIN:0cm 0cm 0pt;"><font size="3"><strong><span style="FONT-FAMILY:新細明體;"><span lang="EN-US"><span style="FONT-FAMILY:標楷體;"><span style="FONT-SIZE:14pt;FONT-FAMILY:標楷體;"><img src="./images/84/FIPHLa_pwssBUxYhbiwLSA.jpg"/></span></span></span></span></strong></font></p>
 <p class="MsoNormal" style="MARGIN:0cm 0cm 0pt;"><font size="3"><strong><span style="FONT-FAMILY:新細明體;"><span lang="EN-US"></span></span></strong></font>&nbsp;</p>
 <p class="MsoNormal" style="MARGIN:0cm 0cm 0pt;"><font size="3"><strong><span style="FONT-FAMILY:新細明體;"><span lang="EN-US">★6號孔子，最老的一棵。右邊長了一棵血藤，彷彿是他的學生。<img src="http://l.yimg.com/f/i/tw/blog/smiley/22.gif"/></span></span></strong></font></p>
-<p class="MsoNormal" style="MARGIN:0cm 0cm 0pt;"><font size="3"><strong><span style="FONT-FAMILY:新細明體;"><span lang="EN-US"><span style="FONT-FAMILY:標楷體;"><span style="FONT-SIZE:14pt;FONT-FAMILY:標楷體;"><span style="FONT-SIZE:14pt;FONT-FAMILY:標楷體;"><img src="./images/84/.rl7I3wjXZB5prVFgkAoMQ.jpg"/></span></span></span></span></span></strong></font></p>
+<p class="MsoNormal" style="MARGIN:0cm 0cm 0pt;"><font size="3"><strong><span style="FONT-FAMILY:新細明體;"><span lang="EN-US"><span style="FONT-FAMILY:標楷體;"><span style="FONT-SIZE:14pt;FONT-FAMILY:標楷體;"><span style="FONT-SIZE:14pt;FONT-FAMILY:標楷體;"><img src="../images/./images/84/a.rl7I3wjXZB5prVFgkAoMQ.jpg"/></span></span></span></span></span></strong></font></p>
 <p class="MsoNormal" style="MARGIN:0cm 0cm 0pt;"><font size="3"><strong><span style="FONT-FAMILY:新細明體;"><span lang="EN-US"><span style="FONT-FAMILY:標楷體;"><span style="FONT-SIZE:14pt;FONT-FAMILY:標楷體;"><span style="FONT-SIZE:14pt;FONT-FAMILY:標楷體;"><img src="./images/84/lBtJzRZO88WSJ.3mVpeibQ.jpg"/></span></span></span></span></span></strong></font></p>
 <p class="MsoNormal" style="MARGIN:0cm 0cm 0pt;"><font size="3"><strong><span style="FONT-FAMILY:新細明體;"><span lang="EN-US"><span style="FONT-FAMILY:標楷體;"><span style="FONT-SIZE:14pt;FONT-FAMILY:標楷體;"><span style="FONT-SIZE:14pt;FONT-FAMILY:標楷體;"><img src="./images/84/tWxH5JSpBxf3jmA8sBBqhA.jpg"/></span></span></span></span></span></strong></font></p>
 <p class="MsoNormal" style="MARGIN:0cm 0cm 0pt;"><font size="3"><strong><span style="FONT-FAMILY:新細明體;"><span lang="EN-US"><span style="FONT-FAMILY:標楷體;"><span style="FONT-SIZE:14pt;FONT-FAMILY:標楷體;"><span style="FONT-SIZE:14pt;FONT-FAMILY:標楷體;"><img src="./images/84/hCv4xsnWKwV42h.Yu1xBGw.jpg"/></span></span></span></span></span></strong></font></p>
@@ -3352,7 +3352,7 @@ BODY:
 <p><span style="FONT-SIZE:9.5pt;FONT-FAMILY:新細明體;">到小琉球騎單車一事，我們期待了很久，好不容易選定日子，更難得的是，今天是冬天裡最</span><span lang="EN-US" style="FONT-SIZE:9.5pt;FONT-FAMILY:Georgia;">sunny</span><span style="FONT-SIZE:9.5pt;FONT-FAMILY:新細明體;">的好日子，感覺就是這麼棒！<img src="http://l.yimg.com/f/i/tw/blog/smiley/4.gif"/></span></p>
 <p><span style="FONT-SIZE:9.5pt;FONT-FAMILY:新細明體;">抵達東港渡輪站，社長超哥統一購買船票及張羅午餐，這次一日遊大人自費約</span><span lang="EN-US" style="FONT-SIZE:9.5pt;FONT-FAMILY:Georgia;">600</span><span style="FONT-SIZE:9.5pt;FONT-FAMILY:新細明體;">元。</span></p>
 <p><span style="FONT-SIZE:9.5pt;FONT-FAMILY:新細明體;">連車帶人搭船的要在渡輪站外面另一條走道進入，等待中又再檢查愛車狀況。</span><img src="./images/79/8w4D3fFWBlGvnLRPTd.Wwg.jpg"/><img src="./images/79/eWCzgyLoVpOXmQxH9yKc1A.jpg"/></p>
-<p><span style="FONT-SIZE:9.5pt;FONT-FAMILY:新細明體;">隊友的車總是很整齊排列<img src="http://l.yimg.com/f/i/tw/blog/smiley/22.gif"/></span><img src="./images/79/.jX1ZIjq6A37yEtTF5GuNA.jpg"/></p>
+<p><span style="FONT-SIZE:9.5pt;FONT-FAMILY:新細明體;">隊友的車總是很整齊排列<img src="http://l.yimg.com/f/i/tw/blog/smiley/22.gif"/></span><img src="../images/./images/79/a.jX1ZIjq6A37yEtTF5GuNA.jpg"/></p>
 <p><span style="FONT-SIZE:9.5pt;FONT-FAMILY:新細明體;">東港地標─紅色陸橋</span><img src="./images/79/bj0w4bnxRVaJNYkqMia3lA.jpg"/></p>
 <p><span style="FONT-SIZE:9.5pt;FONT-FAMILY:新細明體;">到了小琉球，第一站是美人洞，再往前有度假區，我們在此午餐、看海。</span></p>
 <p><span style="FONT-SIZE:9.5pt;FONT-FAMILY:新細明體;"></span><span style="FONT-SIZE:9.5pt;FONT-FAMILY:新細明體;">綠地碧海藍天，真是外國人的最愛了！<img src="http://l.yimg.com/f/i/tw/blog/smiley/8.gif"/></span><span style="FONT-SIZE:9.5pt;FONT-FAMILY:新細明體;"><img src="./images/79/0Vv.aqxp6MigKTCSN2WFhw.jpg"/></span><img src="./images/79/7bvij2X5Ih2T6sy.K6AtZA.jpg"/></p>
@@ -3674,7 +3674,7 @@ BODY:
 <p><img src="./images/76/zofrSNoFNZVfCZsn1HlTTA.jpg"/></p>
 <p><img src="./images/76/ZPO8zbk.n1WkWmx.8A6jDw.jpg"/></p>
 <p><img src="./images/76/Jdaq9kANmUzU.2cN7fdhOQ.jpg"/><br></p>
-<p><img src="./images/76/.Y8zTdDXox3fPL4WHMmOKQ.jpg"/><br><br><br><img src="./images/76/9jEUgFZ6RaDYQzgtt0VbEg.jpg"/></p>
+<p><img src="../images/./images/76/a.Y8zTdDXox3fPL4WHMmOKQ.jpg"/><br><br><br><img src="./images/76/9jEUgFZ6RaDYQzgtt0VbEg.jpg"/></p>
 <p><img src="./images/76/ttj3wrcqBByoih4QP4zqmg.jpg"/></p>
 <p><img src="./images/76/5axSHjvIJaePH.tJtr1dgg.jpg"/></p>
 <p><img src="./images/76/GiR7CXOREyeCaFFpM9u5QQ.jpg"/></p>
@@ -3703,7 +3703,7 @@ BODY:
 <p><img src="./images/71/I0mQoJrKhIhnzgS2NbSjgg.jpg"/><br></p>
 <p><img src="./images/71/41z21yk6MtN9BoBHm90ZWQ.jpg"/></p>
 <p>&nbsp;</p>
-<p><img src="./images/71/.2GySvf3ij1mTMEv5zzn9w.jpg"/></p>
+<p><img src="../images/./images/71/a.2GySvf3ij1mTMEv5zzn9w.jpg"/></p>
 <p><img src="./images/71/fFlJDd_v18PWX7fysBDLkQ.jpg"/></p>
 <p>&nbsp;</p>
 <p><img src="./images/71/z4PJbBU0iS6JrLMfScWamA.jpg"/></p>
@@ -4412,7 +4412,7 @@ BODY:
 <p>&nbsp;</p>
 <p><strong>管理中心前的圓形廣場，河東獅3/6活動集合及解散地點，該處設有停車場供車友停放</strong></p>
 <p><img src="./images/64/zYhcfHPUiJgWwn6VTHbO7g.jpg"/></p>
-<p><img src="./images/64/.9iILkfY5CNO5LvN30njHA.jpg"/></p>
+<p><img src="../images/./images/64/a.9iILkfY5CNO5LvN30njHA.jpg"/></p>
 <p><strong><img src="http://l.yimg.com/f/i/tw/blog/smiley/35.gif"/>自行車道起點─隊長與路人合影！</strong></p>
 <p><img src="./images/64/Jv857vr3IlVA2DFM.ypS.w.jpg"/></p>
 <p><img src="./images/64/BFZvc7x7LDlcIYWkkryU2g.jpg"/></p>
@@ -4673,7 +4673,7 @@ BODY:
 <p><img src="./images/62/IQNhpsRasUwHcjipoIWPOA.jpg"/><br><br><span style="FONT-SIZE:9pt;FONT-FAMILY:標楷體;"><strong></strong>
 <p class="MsoNormal" style="MARGIN:0cm 0cm 0pt;"><strong><span style="FONT-FAMILY:新細明體;"><font size="3">【鼓山輪渡站】</font></span></strong></p>
 <p class="MsoNormal" style="MARGIN:0cm 0cm 0pt;"><strong><span style="FONT-FAMILY:新細明體;"><font size="3"></font></span></strong></p>
-</span><br><img src="./images/62/.ZDH4U9O1eJmtw8cWJVzgA.jpg"/><br><br>
+</span><br><img src="../images/./images/62/a.ZDH4U9O1eJmtw8cWJVzgA.jpg"/><br><br>
 <p class="MsoNormal" style="BACKGROUND:white;MARGIN:0cm 0cm 0pt;WORD-BREAK:break-all;LINE-HEIGHT:18pt;"><font size="3"><strong><span style="FONT-FAMILY:新細明體;">坐旗津渡輪、中洲渡輪、公車、或捷運都可用悠遊卡，買張悠遊卡是很值得的。</span></strong><span lang="EN-US" style="FONT-FAMILY:新細明體;"></span></font></p>
 <p class="MsoNormal" style="MARGIN:0cm 0cm 0pt;"><strong><span style="FONT-SIZE:12pt;FONT-FAMILY:新細明體;">鼓山渡輪站附近不久前建了一座【觀景橋】<img src="http://l.yimg.com/f/i/tw/blog/smiley/22.gif"/>，通西子灣。</span></strong></p>
 <p class="MsoNormal" style="MARGIN:0cm 0cm 0pt;"><strong><span style="FONT-SIZE:12pt;FONT-FAMILY:新細明體;"></span></strong><br><img src="./images/62/jSJCEwsUUQlYnEuDmiinvA.jpg"/><br><br></p>
@@ -5661,7 +5661,7 @@ ALLOW COMMENTS: 0
 PRIMARY CATEGORY: 環島不是夢想
 -----
 BODY: 
-<p><img src="./images/46/.4nBfkAzAbeTgp_CQuo4cg.jpg"/></p>
+<p><img src="../images/./images/46/a.4nBfkAzAbeTgp_CQuo4cg.jpg"/></p>
 <p><font color="#00007f">環島記影</font><img src="http://l.yimg.com/f/i/tw/blog/smiley/39.gif"/><br><br><img src="./images/52/5xf3SNeucP5J_mcTK24M8Q.jpg"/></p>
 <p>&nbsp;</p>
 <p><img src="./images/52/RiDiTdHmT_IPi32Co8sV4A.jpg"/></p>
@@ -6006,7 +6006,7 @@ BODY:
 <p class="MsoNormal" style="MARGIN:0cm 0pt;"><span style="FONT-SIZE:14pt;FONT-FAMILY:標楷體;"><font color="#00007f">「<strong>山開金面石牌崇，俯瞰蘭陽入眼中。</strong>北宜公路最高點高</font></span><span style="FONT-SIZE:14pt;FONT-FAMILY:標楷體;"><font color="#00007f"><span lang="EN-US">538</span>公尺 ，即北宜兩縣交界之處。在晴空萬里之際，可俯看</font></span><span style="FONT-SIZE:14pt;FONT-FAMILY:標楷體;"><font color="#00007f">整個蘭陽平原及散村景觀，太平洋上龜山島載浮載沈的特別</font></span><span style="FONT-SIZE:14pt;FONT-FAMILY:標楷體;"><font color="#00007f">地景，若遇雨霧漫天，即令人產生一股屬於蘭陽特有的氤氳</font></span><span style="FONT-SIZE:14pt;FONT-FAMILY:標楷體;"><font color="#00007f">與縹緲感受，各種獨特的自然景觀風貌，相當壯麗。由於景</font></span><span style="FONT-SIZE:14pt;FONT-FAMILY:標楷體;"><font color="#00007f">觀氣勢萬千，<span lang="EN-US">1954</span>年被選定新蘭陽八景之一。」</font></span></p>
 <p class="MsoNormal" style="MARGIN:0cm 0pt;"><span style="FONT-SIZE:14pt;FONT-FAMILY:標楷體;"><font color="#00007f"><span lang="EN-US"></span></font></span>&nbsp;</p>
 <p class="MsoNormal" style="MARGIN:0cm 0pt;"><img src="./images/50/MNGs0X75toz6_z2NJaVcjQ.jpg"/></p>
-<p><img src="./images/50/.m3xWZ5TrRAhx4Eo8ssltQ.jpg"/><br></p>
+<p><img src="../images/./images/50/a.m3xWZ5TrRAhx4Eo8ssltQ.jpg"/><br></p>
 <p><font style="BACKGROUND-COLOR:#ffffff;" color="#40007f">@石牌最高點與草嶺古道同，立有一小一號的虎字碑</font></p>
 <p><img src="./images/50/g3pr6sNVMGN.j0l.WjnZIQ.jpg"/></p>
 <p><font color="#00007f">@從北宜最高點（約550公尺）看九彎十八拐及龜山島（下）<img src="http://l.yimg.com/f/i/tw/blog/smiley/22.gif"/></font></p>
@@ -6077,13 +6077,13 @@ BODY:
 <p><img src="./images/48/EXpUEEco_P8s9r52ntzLxw.jpg"/></p>
 <p><br><font color="#ff00ff">經過砂卡礑隧道</font></p>
 <p><img src="./images/48/vrB4ZqykQLnpvgVUNIrfaQ.jpg"/><br></p>
-<p><font color="#ff00ff">不是視覺效果，這真的是上坡路</font><br><img src="./images/48/.WvT3HxXXJWdxP5HZZ_2bg.jpg"/></p>
+<p><font color="#ff00ff">不是視覺效果，這真的是上坡路</font><br><img src="../images/./images/48/a.WvT3HxXXJWdxP5HZZ_2bg.jpg"/></p>
 <p><font color="#ff00ff">瞧，多悠哉啊……這是小獅跟我們分手的涼亭</font><br><img src="./images/48/xiQvZYFygGsTsjhtLi6Iig.jpg"/></p>
 <p><font color="#ff00ff">到現在還想不透，小獅為什麼要叫我們擺這個姿勢？</font><br><img src="./images/48/ljrcmTv9fURwEVrZMCml_g.jpg"/></p>
 <p><font color="#ff00ff">帥氣、有力的小獅旁邊就是恐怖的溪畔隧道</font></p>
 <p><img src="./images/48/ocgg7FPMyX7TRLZKfQMEMA.jpg"/></p>
 <p><font color="#ff00ff">出來就是燕子口了</font></p>
-<p><img src="./images/48/.tabCk64md2M3H17TlmNEQ.jpg"/><br><br><font color="#ff00ff">在燕子口大合照</font></p>
+<p><img src="../images/./images/48/a.tabCk64md2M3H17TlmNEQ.jpg"/><br><br><font color="#ff00ff">在燕子口大合照</font></p>
 <p><img src="./images/48/CwRI2ltrDhEJKFh3rpaaZQ.jpg"/></p>
 <p><font color="#ff00ff">享受燕子口單車步道的舒適</font><br><img src="./images/48/Rcasc1OKCMlMfginT32YOA.jpg"/></p>
 <p><font color="#ff00ff">看清楚了沒</font><br><img src="./images/48/ID_LUd4V4.2BmdCT.QKwmw.jpg"/></p>
@@ -6165,7 +6165,7 @@ BODY:
 <p><img src="./images/47/vokkP8imQIurqvNGRTDljA.jpg"/></p>
 <p>&nbsp;</p>
 <p class="MsoNormal" style="BACKGROUND:white;MARGIN:0cm 0cm 0pt;WORD-BREAK:break-all;LINE-HEIGHT:18pt;"><span style="FONT-SIZE:14pt;COLOR:blue;FONT-FAMILY:標楷體;">過了自強外役監後，天空開始下雨，雨中騎車的滋味，淺嘗可以，騎久了可是件累人的事<span lang="EN-US"></span></span></p>
-<p><img src="./images/47/.ugXm65PwkoAAHn9RMSptA.jpg"/></p>
+<p><img src="../images/./images/47/a.ugXm65PwkoAAHn9RMSptA.jpg"/></p>
 <p>&nbsp;</p>
 <p class="MsoNormal" style="BACKGROUND:white;MARGIN:0cm 0cm 0pt;WORD-BREAK:break-all;LINE-HEIGHT:18pt;"><span style="FONT-SIZE:14pt;COLOR:blue;FONT-FAMILY:標楷體;">沒騙你吧，這條路曲折蜿蜒而且上坡不斷<span lang="EN-US"></span></span></p>
 <p><img src="./images/47/ItUOWUzD3IeziSzYXQCmZQ.jpg"/></p>
@@ -6836,9 +6836,9 @@ BODY:
 <p><span style="FONT-SIZE:14pt;COLOR:purple;FONT-FAMILY:標楷體;"></span><span style="FONT-SIZE:14pt;COLOR:purple;FONT-FAMILY:標楷體;">花田中，波斯菊飄逸的身影和浪漫的鼠尾草，實在令人驚豔！在林醫師卓越的攝影技巧下，更加令人讚嘆！<img src="http://l.yimg.com/f/i/tw/blog/smiley/35.gif"/></span></p>
 <p><span style="FONT-SIZE:14pt;COLOR:purple;FONT-FAMILY:標楷體;"><img src="./images/43/ExguKOWt3xYMbqmB1QX_OQ.jpg"/></span></p>
 <p><span style="FONT-SIZE:14pt;COLOR:purple;FONT-FAMILY:標楷體;"><img src="./images/43/2vd2shJcqYUO5G4JCRBSQg.jpg"/></span></p>
-<p><span style="FONT-SIZE:14pt;COLOR:purple;FONT-FAMILY:標楷體;"><img src="./images/43/.GMyb5SeHxo7kgI6BweuSA.jpg"/></span></p>
+<p><span style="FONT-SIZE:14pt;COLOR:purple;FONT-FAMILY:標楷體;"><img src="../images/./images/43/a.GMyb5SeHxo7kgI6BweuSA.jpg"/></span></p>
 <p><span style="FONT-SIZE:14pt;COLOR:purple;FONT-FAMILY:標楷體;"><img src="./images/43/umSpP8odzL82xSihMlJbCg.jpg"/></span></p>
-<p><span style="FONT-SIZE:14pt;COLOR:purple;FONT-FAMILY:標楷體;"><img src="./images/43/.LA1AOF_ayDVAxpzrU8Ixg.jpg"/></span></p>
+<p><span style="FONT-SIZE:14pt;COLOR:purple;FONT-FAMILY:標楷體;"><img src="../images/./images/43/a.LA1AOF_ayDVAxpzrU8Ixg.jpg"/></span></p>
 <p><span style="FONT-SIZE:14pt;COLOR:purple;FONT-FAMILY:標楷體;">敬字亭是幾百年前建的？有幾層？有幾個角？是拜那個〞神〞？幾級古蹟？─經由隊長<img src="http://l.yimg.com/f/i/tw/blog/smiley/33.gif"/>的詳細解說和有獎徵答，孩子們滿載而歸<img src="http://l.yimg.com/f/i/tw/blog/smiley/13.gif"/>。</span></p>
 <p><span style="FONT-SIZE:14pt;COLOR:purple;FONT-FAMILY:標楷體;"><img src="./images/44/87lMdhSdtwkwZ483Zqz91g.jpg"/></span></p>
 <span style="FONT-SIZE:14pt;COLOR:purple;FONT-FAMILY:標楷體;">
@@ -7171,7 +7171,7 @@ BODY:
 <p class="MsoNormal" style="MARGIN:0cm 0cm 0pt;"><span style="FONT-SIZE:10pt;COLOR:#666666;FONT-FAMILY:新細明體;LETTER-SPACING:0.8pt;"></span>&nbsp;</p>
 <p class="MsoNormal" style="MARGIN:0cm 0cm 0pt;"><span style="FONT-SIZE:10pt;COLOR:#666666;FONT-FAMILY:新細明體;LETTER-SPACING:0.8pt;"></span>&nbsp;</p>
 <p class="MsoNormal" style="MARGIN:0cm 0cm 0pt;"><span style="FONT-SIZE:10pt;COLOR:#666666;FONT-FAMILY:新細明體;LETTER-SPACING:0.8pt;"></span>&nbsp;</p>
-<p class="MsoNormal" style="MARGIN:0cm 0cm 0pt;"><span style="FONT-SIZE:10pt;COLOR:#666666;FONT-FAMILY:新細明體;LETTER-SPACING:0.8pt;"><img src="./images/42/.eMYfKf44aebtfO3miVA0A.jpg"/></span></p>
+<p class="MsoNormal" style="MARGIN:0cm 0cm 0pt;"><span style="FONT-SIZE:10pt;COLOR:#666666;FONT-FAMILY:新細明體;LETTER-SPACING:0.8pt;"><img src="../images/./images/42/a.eMYfKf44aebtfO3miVA0A.jpg"/></span></p>
 <p class="MsoNormal" style="MARGIN:0cm 0cm 0pt;"><span style="FONT-SIZE:10pt;COLOR:#666666;FONT-FAMILY:新細明體;LETTER-SPACING:0.8pt;"></span>&nbsp;</p>
 <p class="MsoNormal" style="MARGIN:0cm 0cm 0pt;"><span style="FONT-SIZE:10pt;COLOR:#666666;FONT-FAMILY:新細明體;LETTER-SPACING:0.8pt;"><font face="Arial" color="#000000" size="3">經過連續的渾汗爬坡後，在涼亭內小憩品茗，是最舒暢的事<img src="http://l.yimg.com/f/i/tw/blog/smiley/1.gif"/></font></span></p>
 <p class="MsoNormal" style="MARGIN:0cm 0cm 0pt;"><span style="FONT-SIZE:10pt;COLOR:#666666;FONT-FAMILY:新細明體;LETTER-SPACING:0.8pt;"></span><span style="FONT-SIZE:10pt;COLOR:#666666;FONT-FAMILY:新細明體;LETTER-SPACING:0.8pt;"></span><span style="FONT-SIZE:10pt;COLOR:#666666;FONT-FAMILY:新細明體;LETTER-SPACING:0.8pt;"></span><span style="FONT-SIZE:10pt;COLOR:#666666;FONT-FAMILY:新細明體;LETTER-SPACING:0.8pt;"></span><span style="FONT-SIZE:10pt;COLOR:#666666;FONT-FAMILY:新細明體;LETTER-SPACING:0.8pt;"><font face="Arial" color="#000000" size="3"></font></span>&nbsp;</p>
@@ -8106,7 +8106,7 @@ BODY:
 <p class="MsoNormal" style="MARGIN:0cm 0cm 0pt;"><strong><font style="BACKGROUND-COLOR:#dfffbf;"></font></strong>&nbsp;</p>
 <p class="MsoNormal" style="MARGIN:0cm 0cm 0pt;"><strong><font style="BACKGROUND-COLOR:#ffbfff;">專門用來夾號碼布的帶子，為了省一些時間，鐵人們真是無所不用其極。</font></strong></p>
 <p class="MsoNormal" style="MARGIN:0cm 0cm 0pt;"><strong><font style="BACKGROUND-COLOR:#dfffbf;"></font></strong>&nbsp;</p>
-<p class="MsoNormal" style="MARGIN:0cm 0cm 0pt;"><strong><font style="BACKGROUND-COLOR:#dfffbf;"><img src="./images/2/.9S24j5mQFW24PzMYK5j0Q.jpg"/></font></strong></p>
+<p class="MsoNormal" style="MARGIN:0cm 0cm 0pt;"><strong><font style="BACKGROUND-COLOR:#dfffbf;"><img src="../images/./images/2/a.9S24j5mQFW24PzMYK5j0Q.jpg"/></font></strong></p>
 <p class="MsoNormal" style="MARGIN:0cm 0cm 0pt;"><strong><font style="BACKGROUND-COLOR:#dfffbf;"></font></strong>&nbsp;</p>
 <p class="MsoNormal" style="MARGIN:0cm 0cm 0pt;"><strong><font style="BACKGROUND-COLOR:#ffbfff;">為了怕比賽中鐵腿而買的一大堆補給品，感覺就是有吃有保佑的意思。</font></strong></p>
 <p class="MsoNormal" style="MARGIN:0cm 0cm 0pt;"><strong><font style="BACKGROUND-COLOR:#dfffbf;"></font></strong>&nbsp;</p>
@@ -9727,12 +9727,12 @@ BODY:
 <p>小獅家族與其好友準備出發<img src="http://tw.yimg.com/i/tw/blog/smiley/5.gif"/></p>
 <p>&nbsp;<img src="./images/30/Ta0NeMgXYPJNo4P3LpPOBw.jpg"/></p>
 <p>臨港線的鐵馬道，綠化乾淨、平坦又舒適。說著、說著，喂！前面的，等等我啊......</p>
-<p><img src="./images/30/.H.o3SblJ5bH1M7smL0sVw.jpg"/></p>
+<p><img src="../images/./images/30/a.H.o3SblJ5bH1M7smL0sVw.jpg"/></p>
 <p>妹妹口渴了嗎？要不要喝水？爸爸幫妳弄，父愛的苛護一樣偉大！</p>
 <p>&nbsp;</p>
 <p><img src="./images/30/jhuuDb0MCI9Hj5rJvhjM2w.jpg"/><br></p>
 <p>渡輪上的留影，有沒有注意到我車上的鹹蛋超人叮噹！</p>
-<p><img src="./images/30/.1uo.Tk.ye5hjkfCaJESpw.jpg"/></p>
+<p><img src="../images/./images/30/a.1uo.Tk.ye5hjkfCaJESpw.jpg"/></p>
 <p>父與女<img src="http://tw.yimg.com/i/tw/blog/smiley/14.gif"/></p>
 <p><br><img src="./images/30/vHSZ8wxzw13mpiyLuHKUBQ.jpg"/></p>
 <p>衝啊！騎車騎不贏人家，跑步絕不能輸<img src="http://tw.yimg.com/i/tw/blog/smiley/11.gif"/></p>
@@ -9766,7 +9766,7 @@ ALLOW COMMENTS: 1
 PRIMARY CATEGORY: 戶外趴趴騎
 -----
 BODY: 
-<img src="./images/29/.nhxJ4xYSOgfhHxiUiM7zA.jpg"/><br><br>
+<img src="../images/./images/29/a.nhxJ4xYSOgfhHxiUiM7zA.jpg"/><br><br>
 <p><font size="3"><span style="BACKGROUND:#bfffdf;COLOR:#00007f;FONT-FAMILY:標楷體;">對高雄居民來說，</span><span lang="EN-US" style="COLOR:#666666;FONT-FAMILY:新細明體;"></span></font></p>
 <p class="MsoNormal" style="BACKGROUND:white;MARGIN:0cm 0cm 0pt;WORD-BREAK:break-all;LINE-HEIGHT:18pt;"><font size="3"><span style="BACKGROUND:#bfffdf;COLOR:#00007f;FONT-FAMILY:標楷體;">如果說柴山是登山車的黃金賞景路線，</span><span lang="EN-US" style="COLOR:#666666;FONT-FAMILY:新細明體;"></span></font></p>
 <p class="MsoNormal" style="BACKGROUND:white;MARGIN:0cm 0cm 0pt;WORD-BREAK:break-all;LINE-HEIGHT:18pt;"><font size="3"><span style="BACKGROUND:#bfffdf;COLOR:#00007f;FONT-FAMILY:標楷體;">那麼澄清湖環湖道便是公路車練車的鑽石路線。</span><span lang="EN-US" style="COLOR:#666666;FONT-FAMILY:新細明體;"></span></font></p>
@@ -9832,7 +9832,7 @@ BODY:
 <p><img src="./images/29/NWZ7xmpHfMq1E3xDC1DL2Q.jpg"/></p>
 <p>@松藝路接近中興塔路段，較陡的第三段爬坡<img src="http://tw.yimg.com/i/tw/blog/smiley/2.gif"/><img src="http://tw.yimg.com/i/tw/blog/smiley/15.gif"/></p>
 <p>&nbsp;</p>
-<p><img src="./images/29/.A_MBRdT97YnNiVb_27OCQ.jpg"/></p>
+<p><img src="../images/./images/29/a.A_MBRdT97YnNiVb_27OCQ.jpg"/></p>
 <p>@體力不支的路人甲，爬坡後稍做休息，再出發<img src="http://tw.yimg.com/i/tw/blog/smiley/9.gif"/></p>
 <p><img src="./images/29/Fk4tuTlE2Qw0k5fsMWLMoQ.jpg"/></p>
 <p>@中興塔旁係美景如畫之澄清湖高爾夫球場<img src="http://tw.yimg.com/i/tw/blog/smiley/10.gif"/></p>
@@ -10187,7 +10187,7 @@ BODY:
 <p><font style="BACKGROUND-COLOR:#dfffbf;" color="#407f00">路線里程：<br>里程表：約90公里<img src="http://tw.yimg.com/i/tw/blog/smiley/1.gif"/></font></p>
 <p>=======================================================</p>
 <p>01.↓四維路與自強路口</p>
-<p><img src="./images/24/.xoUUi5rWHSYQccEEEcMrQ.jpg"/></p>
+<p><img src="../images/./images/24/a.xoUUi5rWHSYQccEEEcMrQ.jpg"/></p>
 <p>&nbsp;</p>
 <p>02.↓四維路與中山路<br><img src="./images/24/g4hFUF0wQGFf5482lXu_PQ.jpg"/></p>
 <p>&nbsp;</p>
@@ -10259,7 +10259,7 @@ BODY:
 <p>&nbsp;</p>
 <p>37.↓<br><img src="./images/24/vNwRIjiF_Fmmorm.DfZBVw.jpg"/></p>
 <p>&nbsp;</p>
-<p>38.↓綠油油的一片，心情也跟著舒暢了<br><img src="./images/24/.Lau9j8OH46UcsXBKD5NjQ.jpg"/></p>
+<p>38.↓綠油油的一片，心情也跟著舒暢了<br><img src="../images/./images/24/a.Lau9j8OH46UcsXBKD5NjQ.jpg"/></p>
 <p>&nbsp;</p>
 <p>39.↓<br><img src="./images/24/3S_.mMtNOgTcTogyv7aUiw.jpg"/><br></p>
 <p>&nbsp;</p>
@@ -10444,7 +10444,7 @@ BODY:
 <p><img src="./images/2/fJGYLoUlV3tBv7YEZC84Fw.jpg"/></p>
 <p><span style="FONT-SIZE:12pt;FONT-FAMILY:新細明體;">晚餐後，在大廳與民宿老闆（中）閒聊</span></p>
 <p>&nbsp;</p>
-<p><br><img src="./images/2/.1KXQ965suwuVt0XxZJoEw.jpg"/></p>
+<p><br><img src="../images/./images/2/a.1KXQ965suwuVt0XxZJoEw.jpg"/></p>
 <p><span style="FONT-SIZE:12pt;FONT-FAMILY:新細明體;">早晨觀看後湖水月的景象</span></p>
 <p><br><img src="./images/2/wVQDjmsB_X4NXewBQZVpVg.jpg"/></p>
 <p><span style="FONT-SIZE:12pt;FONT-FAMILY:新細明體;">庭院草皮</span></p>
@@ -10507,7 +10507,7 @@ BODY:
 <p><span style="FONT-SIZE:12pt;FONT-FAMILY:新細明體;">抵達長濱的時候，吳大哥已經泡好茶等我們了</span></p>
 <p><br><br><img src="./images/2/nTgjx2b3soPA4Nrfa5QaiQ.jpg"/></p>
 <p><span style="FONT-SIZE:12pt;FONT-FAMILY:新細明體;">在便利商店買午餐食用</span></p>
-<p><br><img src="./images/2/.MWlETxflgX74W18ffljlw.jpg"/></p>
+<p><br><img src="../images/./images/2/a.MWlETxflgX74W18ffljlw.jpg"/></p>
 <p><span style="FONT-SIZE:12pt;FONT-FAMILY:新細明體;">到達石雨傘</span></p>
 <p><br><img src="./images/2/gSm3Qhb2bp0sL.ElM0adIQ.jpg"/></p>
 <p><span style="FONT-SIZE:12pt;FONT-FAMILY:新細明體;">將車停放整齊</span></p>
@@ -10529,7 +10529,7 @@ BODY:
 <p><span style="FONT-SIZE:12pt;FONT-FAMILY:新細明體;">三仙台景觀</span></p>
 <p><br><img src="./images/2/znSd5gY3zAUmjY3xp318ow.jpg"/></p>
 <p><span style="FONT-SIZE:12pt;FONT-FAMILY:新細明體;">這是橋上</span></p>
-<p><br><img src="./images/2/.dRk.VAX1jrmM0ovqttymg.jpg"/></p>
+<p><br><img src="../images/./images/2/a.dRk.VAX1jrmM0ovqttymg.jpg"/></p>
 <p><span style="FONT-SIZE:12pt;FONT-FAMILY:新細明體;">吳大哥也到三仙台會合</span></p>
 <p><br><img src="./images/2/B1JkRA9SZWwNnjfu04e5oQ.jpg"/></p>
 <p><span style="FONT-SIZE:12pt;FONT-FAMILY:新細明體;">躺在碎石沙灘上休息</span></p>
@@ -11206,7 +11206,7 @@ BODY:
 <p><font size="3"><strong><em><u><span style="BACKGROUND:#d9d9d9;"></span></u></em></strong></font>&nbsp;</p>
 <p><font size="3"><strong><em><u><span style="BACKGROUND:#d9d9d9;"><img src="./images/15/SCmzedZkZJ1j.QbmpNftCQ.jpg"/></span></u></em></strong></font></p>
 <p><font size="3"><strong><em><u><span style="BACKGROUND:#d9d9d9;">@二級古績英國領事館</span></u></em></strong></font></p>
-<p><font size="3"><strong><em><u><span style="BACKGROUND:#d9d9d9;"><img src="./images/15/.i3yK2jQxibKsyxOx57Vww.jpg"/></span></u></em></strong></font></p>
+<p><font size="3"><strong><em><u><span style="BACKGROUND:#d9d9d9;"><img src="../images/./images/15/a.i3yK2jQxibKsyxOx57Vww.jpg"/></span></u></em></strong></font></p>
 <p><font size="3"><strong><em><u><span style="BACKGROUND:#d9d9d9;">@廟前廣場為賞高雄港之最佳景點</span></u></em></strong></font></p>
 <p><font size="3"><strong><em><u><span style="BACKGROUND:#d9d9d9;"><span style="BACKGROUND:#d9d9d9;"><font face="Times New Roman"><font size="3"><img src="./images/15/oAE7YdxfJCm1nAGMqO3EDA.jpg"/></font></font></span></span></u></em></strong></font></p>
 <p><font face="Times New Roman" size="3"><strong><em><u><span style="BACKGROUND:#d9d9d9;"><span style="BACKGROUND:#d9d9d9;"></span></span></u></em></strong></font>&nbsp;</p>
@@ -11225,7 +11225,7 @@ BODY:
 <p><font size="3"><strong><span>@從遠處眺望雷達站（即柴山山頂最高點，約海拔350公尺高)</span></strong></font></p>
 <p><font size="3"><strong><span></span><em><u><span style="BACKGROUND:#d9d9d9;"><span style="BACKGROUND:#d9d9d9;"><img src="./images/15/NCfgBQ9tnctheOptgyje0w.jpg"/></span></span></u></em></strong></font></p>
 <p><font size="3"><strong><em><u><span style="BACKGROUND:#d9d9d9;"><span style="BACKGROUND:#d9d9d9;">@山頂雷達站景觀</span></span></u></em></strong></font></p>
-<p><strong><span><font size="3"><font face="Times New Roman"><img src="./images/2/.P0QtE9tNwt9zBWgR7nufg.jpg"/></font></font></span></strong></p>
+<p><strong><span><font size="3"><font face="Times New Roman"><img src="../images/./images/2/a.P0QtE9tNwt9zBWgR7nufg.jpg"/></font></font></span></strong></p>
 <p><strong><span>@往雷達站之路況良好，林蔭蔽天，涼爽宜人</span></strong></p>
 <p><strong><span><font size="3"><font face="Times New Roman"><img src="./images/15/68NEsUPkxCzTNpxHJKf9yA.jpg"/></font></font></span></strong></p>
 <p><strong><span><font face="Times New Roman" size="3">(後記：大年初五，吃飽無事做，一大早騎了五個景點拍了上開相片，</font></span></strong></p>
@@ -11291,9 +11291,9 @@ BODY:
 <p>@清龍宮--中寮山入山口旁</p>
 <p><br><img src="./images/2/JrEaR1m6kFIvJaLTxMYymQ.jpg"/></p>
 <p>@登頂後於蓮花亭與雄大港車隊會合</p>
-<p><img src="./images/2/.YvPPo5WO3WOt7sr4QuFDg.jpg"/></p>
+<p><img src="../images/./images/2/a.YvPPo5WO3WOt7sr4QuFDg.jpg"/></p>
 <p>@周圍景觀圖</p>
-<p><img src="./images/2/.1dtvOQC.if6tbbkMzGo0w.jpg"/></p>
+<p><img src="../images/./images/2/a.1dtvOQC.if6tbbkMzGo0w.jpg"/></p>
 <p>@立於中寮山頂可俯瞰南二高車潮穿越跨下</p>
 <p><br><img src="./images/2/iAKwKYGhkviZbN0uuMt01Q.jpg"/></p>
 <p>@於旗山糖廠清涼一下慰勞自己</p>
